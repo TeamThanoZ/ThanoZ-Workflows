@@ -1,3 +1,3 @@
-<p align="center"><a href="https://t.me/adityahalder"><img src="https://te.legra.ph/file/4f657f875c92a8a13124b.jpg"></a></p>
+<p align="center"><a href="https://t.me/adityahalder"><img src="https://te.legra.ph/file/572d1ba0ce40fede3fc48.jpg"></a></p>
 
-### 🥀 [𝐊𝐚𝐚𝐥𝐢 𝐋𝐢𝐧𝐮𝐱](https://t.me/+anC9A51TO-o5Zjg1) : 🍁 𝐓𝐡𝐞 𝐍𝐞𝐰 𝐒𝐞𝐫𝐯𝐞𝐫 📡 𝐂𝐫𝐞𝐚𝐭𝐞𝐝 𝐀𝐧𝐝 💞 𝐌𝐚𝐧𝐚𝐠𝐞𝐝 𝐁𝐲 » [𝐊𝐚𝐚𝐥](https://t.me/iamkaal) ✨
+### 🥀 [ᴛʜᴀɴᴏᴢ ꜱᴜᴩᴩᴏʀᴛ](https://t.me/thanos_pros_2) : 🍁 𝐓𝐡𝐞 𝐍𝐞𝐰 𝐒𝐞𝐫𝐯𝐞𝐫 📡 𝐂𝐫𝐞𝐚𝐭𝐞𝐝 𝐀𝐧𝐝 💞 𝐌𝐚𝐧𝐚𝐠𝐞𝐝 𝐁𝐲 » [ᴛʜᴀɴᴏᴢ](https://t.me/thanos_pros_2) ✨
